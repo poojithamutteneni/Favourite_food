@@ -1,4 +1,6 @@
 # Favourite_food
 FOOD!!!
-PIZZA
-Burger
+Anyone who says that money cannot buy happiness has clearly never spent their money on pizza 🍕
+Panipuri
+FRIES FRIES FRIES!!!!
+
